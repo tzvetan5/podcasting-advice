@@ -240,4 +240,4 @@ This kills momentum and breaks the trust you’ve started to build with your ear
 
 Ready to stop spending hours editing and start multiplying your content? **PodClips** uses AI to turn your long episodes into dozens of shareable, engaging video clips on autopilot. Join over 200 podcasters who are growing their audience faster by working smarter. [Try it free today and see the difference](https://www.podclips.pro).
 
-*Article created using [Outrank](https://outrank.so)*
+PodClips helps you save time and grow your audience on autopilot - the only thing you will have to do is uplod your podcast episode and in a few minutes you will have viral video content ready to be posted - https://www.podclips.pro/
