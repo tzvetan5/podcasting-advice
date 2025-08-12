@@ -289,4 +289,4 @@ You can get going just by talking about the tools, books, or services you alread
 
 Ready to transform your podcast episodes into a powerful growth engine? **PodClips** uses AI to automatically create dozens of engaging, shareable video clips from a single audio file. Stop spending hours editing and start reaching new listeners on social media effortlessly. [Discover how PodClips can multiply your content today.](https://www.podclips.pro)
 
-*Article created using [Outrank](https://outrank.so)*
+PodClips helps you save time and grow your audience on autopilot - the only thing you will have to do is uplod your podcast episode and in a few minutes you will have viral video content ready to be posted - https://www.podclips.pro/
